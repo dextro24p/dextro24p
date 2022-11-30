@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Code logics | Finance | Stocks |**
 
-- 📫 How to reach me **dextro69x@gmail.com**
+- 📫 How to reach me **dextro24p@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/bharat-patil-ba489a22b](https://www.linkedin.com/in/bharat-patil-ba489a22b)
 
